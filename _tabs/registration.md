@@ -7,4 +7,4 @@ published: true
 
 **Registration will open in late February / early March.** 
 
-Participations is limited to 100. More info on the selection criteria will come soon.
+Capacity is limited to 100 participants. More details on how we’ll select attendees will be shared soon.
